@@ -7,8 +7,6 @@
 💬 Ask me about: Cats & Games <br>
 📫 Reach me out: osmanbakialtiok@gmail.com <br>
 😄 Pronouns: He/His/Dev <br>
-⚡ Fun fact: I graduated from college in 7 (exact) years. <br>
-🥇 Techs I'm familiar with:
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
