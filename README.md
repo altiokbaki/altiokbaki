@@ -6,7 +6,7 @@
 🤔 Looking for help with mentorship <br>
 💬 Ask me about: Cats & Games <br>
 📫 Reach me out: osmanbakialtiok@gmail.com <br>
-😄 Pronouns: He/His/Dev <br>
+😄 Pronouns: He/Him/Dev <br>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
