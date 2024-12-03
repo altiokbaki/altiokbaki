@@ -1,6 +1,6 @@
 ### Hi there 👋 Hope you doing great!
 
-🔭 I’m currently working at ILKFER GROUP <br>
+🔭 I’m currently working at DAD Yazılım <br>
 🌱 Learning .NET, Jquery, Devexpress, Javascript, CSS, HTML, Bootstrap <br> 
 👯 I’m looking to collaborate on productivity <br>
 🤔 Looking for help with mentorship <br>
